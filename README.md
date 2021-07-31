@@ -5,16 +5,25 @@ Islam takes the full blame for terrorism whether people agree or not, im an Iraq
 And thats the thing, In islam, what defines as an "innocent" person? 'Someone who hasn't broken Shariaa law', so all these people being killed are simply "not innocent" in islam, and if a muslim disagrees with what I'm saying, they're simply Fake muslims, because they arent following Shariaa law!
 
 Qur'anic Scriptures (This is your own Book, not as if I made it up)
+
 9:11-12
+
 9:29
-3:34
+
+4:34
+
 10:99
+
 11:28
 
 Hadiths (the own lovely prophet himself)
+
 9:83:17 Sahih Al-Bukhari
+
 9:84:64 Sahih Al-Bukhari
+
 9:89:271 Sahih Al-Bukhari
+
 38:4339 Sunan Abu Dawood
 
 (Most people probably wont even bother reading them and then just go to defending the religion of "peace")
