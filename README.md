@@ -43,3 +43,6 @@ You shouldnt do that because Allah is simply fake and i'll prove it
 Before Islam, the gospell had said that the 4th and last prophet shall be named Ahmed (not Muhammed)and is the Holy spirit (not a human)
 Islamic scholars and muslims defend Islam by claiming that the gospell had been corrupted by Jews and Jewish scholars
 Since Allah had made the gospell and is all-knowing, give me one verse in the Qur'an where it claims or referrers to the Gospell being corrupted and read it out giving an explanation, if you can find that one verse, I will convert back to Islam, if you fail, you now know that Islam is fake and not worth killing for, and you'll probably leave soon..
+
+Heres a perfect example of true muslims https://youtu.be/jHrI4Qjhmyc
+Basically, summing this up, "Muslims" living in the west where they do not follow full Shariaa law, are not true muslims, instead Muslims living in Islamic states where they can practice their brutal traditions without a fear of law, are true muslims, and let me tell you, they are anything but peaceful!
