@@ -2,7 +2,7 @@ Hopefully I can change your mind about Islam with this article I wrote? Enjoy, y
 
 -Before you read, please note that Islam is NOT a race, because then you'll be mixing between 2 very different things, a race is something you are born with and you can't change therefore you shouldn't be judged for it, and on the other hand, Islam is an ideology(a mindset) that can be changed therefore it can and should be criticised, you can't just deflect any criticisation towards Islam using the race card! Lets get on with it now, shall we..
 
-Islam takes the full blame for terrorism whether people agree or not, i'm an Iraqi ex-muslim and i've experienced Shariaa being enforced me myself, Islam orders the killings of ex-muslims, infidels, non-muslims(except Christians(Nasranis only) and Jews(not anymore)), Homos and Different sector muslims (Shi'ite and Sunni) and how do muslims defend Islam? "Islam teaches us to never hurt innocent people"
+Islam takes the full blame for terrorism whether people agree or not, i'm an Iraqi ex-muslim and i've experienced Shariaa being enforced on me myself, Islam orders the killings of ex-muslims, infidels, non-muslims(except Christians(Nasranis only) and Jews(not anymore)), Homos and Different sector muslims (Shi'ite and Sunni) and how do muslims defend Islam? "Islam teaches us to never hurt innocent people"
 
 And thats the thing, In islam, what defines as an "innocent" person? 'Someone who hasn't broken Shariaa law', so all these people being killed are simply "not innocent" in islam, and if a muslim disagrees with what I'm saying, they're simply Fake muslims, because they arent following Shariaa law!
 
