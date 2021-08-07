@@ -65,6 +65,7 @@ Well, how would you fix an issue like this where one claims that they are god an
 Simple, the first and the original is correct because they came first, and since Islam was created at around 600AD and christianity was made at around 0AD (obviously 😑), so you now know that Islam is the ultimate Christianity B-tec Rip-off
 
 Heres a perfect example of true muslims, Sensitive content, stay away if you cant handle it- https://youtu.be/jHrI4Qjhmyc
+
 Basically, summing this up, "Muslims" living in the west where they do not follow full Shariaa law, are not true muslims, instead Muslims living in Islamic states where they can practice their brutal traditions without a fear of law, are true muslims, and let me tell you, they are anything but peaceful!
 
 Shout out- David wood and Apostate Prophet
