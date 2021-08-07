@@ -53,13 +53,20 @@ Islamic scholars and muslims defend Islam by claiming that the gospell had been 
 Since Allah had made the gospell and is all-knowing, give me one verse in the Qur'an where it claims or referrers to the Gospell being corrupted and read it out giving an explanation, if you can find that one verse, I will convert back to Islam, if you fail, you now know that Islam is fake and not worth killing for, and you'll probably leave soon..
 
 Here's more, in 57:3, Allah call's himself the 'first and the last'
+
 in the new testament at Revelation 1:17-18, Jesus call's himself 'the first and the last'
+
 in 22:56-57, Allah says that he would judge the world
-but in 25:31-32
+
+but in 25:31-32, Jesus says that he will judge the world
+
+Could Allah be Jesus? Well, No! The four prophets in Islam are Jesus, Mohammed, Ibrahim and last but not least, Moses
+Well, how would you fix an issue like this where one claims that they are god and the other also claim that they are god?
+Simple, the first and the original is correct because they came first, and since Islam was created at around 600AD and christianity was made at around 0AD (obviousely 😑), so you now know that Islam is the ultimate Christianity Rip-off
 
 Heres a perfect example of true muslims, Sensitive content, stay away if you cant handle it- https://youtu.be/jHrI4Qjhmyc
 Basically, summing this up, "Muslims" living in the west where they do not follow full Shariaa law, are not true muslims, instead Muslims living in Islamic states where they can practice their brutal traditions without a fear of law, are true muslims, and let me tell you, they are anything but peaceful!
 
 Shout out- David wood and Apostate Prophet
 
-I hope I changed your view on islam, you can use this against any Muslim you want
+I hope I changed your view on islam, and anyone can use this against any Muslim you want
